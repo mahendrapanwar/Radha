@@ -1,1 +1,1 @@
-softwares companies(like animation) , Apps companies, & websites companies
+softwares companies(like animation) , Apps companies, widget companies & websites companies in phone,mobile & waching machine etc.
